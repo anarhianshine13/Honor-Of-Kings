@@ -240,4 +240,4 @@ Honor of Kings is offered as a full free version, with all features and updates 
 Don't miss out on the action! Download Honor of Kings today and join the battle for supremacy on the battlefield!
 
 ---
-**Last updated:** 2026-10-16 23:25:30 UTC
+**Last updated:** 2026-10-17 04:05:35 UTC
